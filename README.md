@@ -2,7 +2,7 @@
 
 
 
-[StrawPage](https://littlehawk.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://www.tumblr.com/pixelpastry/169105405963/wanted-to-practice-some-ppl-so-i-drew-these-two?source=share) <br />
+[StrawPage](https://batenthusiast.straw.page/) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://www.tumblr.com/pixelpastry/169105405963/wanted-to-practice-some-ppl-so-i-drew-these-two?source=share) <br />
 → Will try to label if i'm afk!<br />
 → Please interact !!<br />
 
