@@ -1,8 +1,8 @@
- <br />![image](https://github.com/user-attachments/assets/7d2148c2-6cf3-42ec-ad3a-2971cf69580a)
+ <br />![image](https://media.discordapp.net/attachments/1157344612642471936/1405255785654784123/0dee78adc11234c81f0ce9b23895bda4-removebg-preview.png?ex=689e29ef&is=689cd86f&hm=232af1446a53cca63cd44380fcb1e34f3d3d69f5fc8e7c6858eefd1d1f5e6cdd&=&format=webp&quality=lossless&width=529&height=571)
 
 
 
-[StrawPage](https://batenthusiast.straw.page/) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://www.tumblr.com/pixelpastry/169105405963/wanted-to-practice-some-ppl-so-i-drew-these-two?source=share) <br />
+[StrawPage](https://batenthusiast.straw.page/) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://uk.pinterest.com/pin/62417144828841028/) <br />
 → Will try to label if i'm afk!<br />
 → Please interact !!<br />
 
