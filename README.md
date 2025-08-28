@@ -1,8 +1,7 @@
- <br />![image](https://media.discordapp.net/attachments/1157344612642471936/1405255785654784123/0dee78adc11234c81f0ce9b23895bda4-removebg-preview.png?ex=689e29ef&is=689cd86f&hm=232af1446a53cca63cd44380fcb1e34f3d3d69f5fc8e7c6858eefd1d1f5e6cdd&=&format=webp&quality=lossless&width=529&height=571)
+ <br />![image](https://64.media.tumblr.com/f0bcfdeb54fb1ab6c0c90e6a7fbdba93/8c91c8fadc41107f-b9/s250x400/bef652a4f7fc71a69e4730d95afb887c7abcfd2f.gifv)
 
 
-
-[StrawPage](https://batenthusiast.straw.page/) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://uk.pinterest.com/pin/62417144828841028/) <br />
+[StrawPage](https://batenthusiast.straw.page/) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://www.tumblr.com/squeedlejuice/190722416792/i-could-be-brown-i-could-be-blue-i-could-be?source=share) <br />
 → Will try to label if i'm afk!<br />
 → Please interact !!<br />
 
