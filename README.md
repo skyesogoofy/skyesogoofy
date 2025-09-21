@@ -1,19 +1,15 @@
-<br />![image](https://64.media.tumblr.com/817b1eb12a89f1c3e584d558fe79a57a/95d3abc48a58e078-fc/s1280x1920/835c51577ac54468033693f91a01b177198a9af0.pnj)
-<br />![image](https://64.media.tumblr.com/f0bcfdeb54fb1ab6c0c90e6a7fbdba93/8c91c8fadc41107f-b9/s250x400/bef652a4f7fc71a69e4730d95afb887c7abcfd2f.gifv)
+<br />![image](https://64.media.tumblr.com/03320f1b624a4d142116b2cec4e4e92c/526037d8a356cdde-ef/s100x200/a10af2d894ce1353e59c3cbd38ee7900ed2cae9b.pnj)
 
 
 [StrawPage](https://batenthusiast.straw.page/) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://www.tumblr.com/squeedlejuice/190722416792/i-could-be-brown-i-could-be-blue-i-could-be?source=share) <br />
 → Will try to label if i'm afk!<br />
 → Please interact !!<br />
 
-![image](https://github.com/user-attachments/assets/511a3cc5-2dbe-4f59-a22b-45e4713d2a51)
+![image](https://64.media.tumblr.com/e499afe1e9f6f8a633592670502657f9/526037d8a356cdde-17/s100x200/56d3ac5a4c727599ee37014da0234bd31abad7ad.pnj)
 
 
 <br />
 𝗳𝗶𝗰𝘁𝗸𝗶𝗻𝘀:<br />
 → Kate Bishop<br />
-→ Eddie Munson<br />
 → New Wave Girl<br />
-
-<br />![image](https://64.media.tumblr.com/7ffd6d956fccacb9306e73ef8f150b27/95d3abc48a58e078-82/s1280x1920/fab907b93bd1e4cd20939a9bc986c6456b706cb2.pnj)
 
