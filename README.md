@@ -1,7 +1,7 @@
 <br />![image](https://64.media.tumblr.com/03320f1b624a4d142116b2cec4e4e92c/526037d8a356cdde-ef/s100x200/a10af2d894ce1353e59c3cbd38ee7900ed2cae9b.pnj)
 
 
-[StrawPage](https://littlehawk.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) / [ArtAbove](https://www.tumblr.com/squeedlejuice/190722416792/i-could-be-brown-i-could-be-blue-i-could-be?source=share) <br />
+[StrawPage](https://littlehawk.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) <br />
 → Will try to label if i'm afk!<br />
 → Please interact !!<br />
 
