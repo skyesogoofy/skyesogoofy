@@ -1,15 +1,16 @@
-<br />![image](https://64.media.tumblr.com/03320f1b624a4d142116b2cec4e4e92c/526037d8a356cdde-ef/s100x200/a10af2d894ce1353e59c3cbd38ee7900ed2cae9b.pnj)
+<br />![image](https://64.media.tumblr.com/569e33376335f22529d56173a132499f/08e4ad6bf6c28fa8-8b/s400x600/1c5d38c696639481a0391c043c860dc49f8ddef0.gif)
 
 
 [StrawPage](https://ladyhawk.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) <br />
 → Will try to label if i'm afk!<br />
 → Please interact !!<br />
 
-![image](https://64.media.tumblr.com/e499afe1e9f6f8a633592670502657f9/526037d8a356cdde-17/s100x200/56d3ac5a4c727599ee37014da0234bd31abad7ad.pnj)
-
+![image](https://64.media.tumblr.com/232dbbc5474fd99dd78bc328ba77583c/62bef8aaa2008b65-07/s100x200/05f6b21495490f429258c06063f40f708a9d95f0.gif)
+![image](https://64.media.tumblr.com/2f2edec609d753e800e0481d97a02263/62bef8aaa2008b65-a0/s100x200/207940782a2b2ad5d9a8ade62d61ec8d29aed17f.gif)
+![image](https://64.media.tumblr.com/383a78d5bac5799b313e267b9094605e/62bef8aaa2008b65-8b/s100x200/a5ccbfe6e6c1be5d5ffc56cc0ff6ed6f3c94bc55.gif)
 
 <br />
-𝗳𝗶𝗰𝘁𝗸𝗶𝗻𝘀:<br />
+𝗸𝗶𝗻𝘀:<br />
 → Kate Bishop<br />
 → New Wave Girl<br />
-
+→ Glinda Upland<br />
