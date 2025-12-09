@@ -1,4 +1,4 @@
-<br /> ![image](https://image2url.com/images/1765291471053-2b510008-8626-4599-8da0-d311dc99afb7.png)
+<br /> ![image](https://media.discordapp.net/attachments/1004122149382013060/1447962617615224842/68747470733a2f2f696d6167653275726c2e636f6d2f696d616765732f313736353239313437313035332d32623531303030382d383632362d343539392d386461302d6433313164633939616662372e706e67_resized.png?ex=693987c5&is=69383645&hm=f06adc59ac8831aade094b978fdb8aaaa446626ebba83ced61c9c572ccd28952&=&format=webp&quality=lossless&width=385&height=385)
 
 
 [StrawPage](https://ladyhawk.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) <br />
