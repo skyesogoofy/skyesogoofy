@@ -15,3 +15,4 @@
 𝗸𝗶𝗻𝘀:<br />
 → Kate Bishop<br />
 → New Wave Girl<br />
+→ Glinda Upland<br />
