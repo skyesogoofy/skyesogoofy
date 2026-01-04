@@ -2,7 +2,7 @@
 
 
 
-[StrawPage](https://cookiecutterr.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) <br />
+[StrawPage](https://waterrnavi.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) <br />
 → Will try to label if i'm afk!<br />
 → Please interact !!<br />
 → Current hyperfixaton :: **Katseye ,, Megan Skiendiel ,, Lions !**<br />
