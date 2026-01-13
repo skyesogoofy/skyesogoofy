@@ -1,19 +1,3 @@
-<br /> ![image](https://64.media.tumblr.com/48d91032becdb4a70b17c79cca6ac898/tumblr_oljisgK4y41vl7x77o1_400.pnj)
-
-
+<br /> ![image](https://i.pinimg.com/1200x/35/94/52/359452e5a51f10db7d867ba4e46597fb.jpg)
 
 [StrawPage](https://waterrnavi.straw.page) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) <br />
-→ Will try to label if i'm afk!<br />
-→ Please interact !!<br />
-→ Current hyperfixaton :: **Avatar ,, Katseye ,, Lions !**<br />
-
-![image](https://64.media.tumblr.com/2f2edec609d753e800e0481d97a02263/62bef8aaa2008b65-a0/s100x200/207940782a2b2ad5d9a8ade62d61ec8d29aed17f.gif)
-![image](https://64.media.tumblr.com/9eeb9993928d42e36d2c8550d1b75ea2/c4d4897128be6205-35/s100x200/b756ad87e4445c339d57b1d1b86acf6af406a587.gifv)
-![image](https://64.media.tumblr.com/383a78d5bac5799b313e267b9094605e/62bef8aaa2008b65-8b/s100x200/a5ccbfe6e6c1be5d5ffc56cc0ff6ed6f3c94bc55.gif)
-![image](https://64.media.tumblr.com/252a954d9e2a85584db3f6c476208804/c4d4897128be6205-f3/s100x200/493b7a40af097034a406a2f7d92f1d2e82ae0f32.gifv)
-<br />
-𝗸𝗶𝗻𝘀:<br />
-→ Kate Bishop<br />
-→ New Wave Girl<br />
-→ Glinda Upland<br />
-→ Tsireya<br />
