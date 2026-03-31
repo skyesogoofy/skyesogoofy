@@ -2,3 +2,4 @@
 art by @polar-bisucit<br />
 
 [StrawPage](https://skyebishop.straw.page) / [StrawPage2](https://skyeamese.straw.page/) / [Tumblr](https://www.tumblr.com/blog/skyesogoofy) <br />
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fskyesogoofy&labelColor=%23ba68c8&countColor=%23895e91&style=flat) <br />
