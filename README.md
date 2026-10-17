@@ -1,7 +1,7 @@
 
 <img width="960" alt="Image" src="https://github.com/user-attachments/assets/c05105ba-be86-4754-b671-734a33190ca7" /><br />
 
-<br />-------------------------------------------------------------------------------------------------------------------------------------------------------------
+<br />-------------------------------------------------------------------------------------------------------------------------------------------------------
  <details>
 <summary><b> <p align="center">⬇️ about me ⬇️</p></b></summary>
   <br>
@@ -14,7 +14,7 @@ I have AUDHD, ocd and anxiety so i tend to be awkward and not the greatest at sm
 
   <br>
 </details>
-<br />-------------------------------------------------------------------------------------------------------------------------------------------------------------
+<br />-------------------------------------------------------------------------------------------------------------------------------------------------------
 
 <b> <p align="center">[StrawPage](https://skyeshoods.straw.page)  / [Tumblr](https://www.tumblr.com/blog/skyesogoofy)<br />
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fskyesogoofy%2Fgithub-visitors-badge"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fskyesogoofy%2Fgithub-visitors-badge&labelColor=%23821111&countColor=%23821111" /></a>  <br />
