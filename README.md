@@ -6,8 +6,14 @@
 <summary><b> <p align="center">⬇️ about me ⬇️</p></b></summary>
   <br>
   <br><br><br>
-<b> Hiii! I'm Skye or Kate , i go by she/they! Feel free to int and talk to me, i promise i'm not scary!! check my sp for more abt me and feel free to int anywhere!!
-I have AUDHD, ocd and anxiety so i tend to be awkward and not the greatest at small talk so please bear with me!
+<b> Hiii! I'm Skye or Kate , i go by she/they! I'm a Kate Bishop kin! I'm a huuuge Parker Robbins fan, usually sat as him!!
+
+I have AUDHD and anxiety so i tend to be awkward and not the greatest at small talk so please bear with me!
+
+Check my sp for more abt me and feel free to int anywhere!!
+
+
+ I usually sit in the comics area by the bakery on safe server #1 but i'm not always active! Feel free to int and talk to me, i promise i'm not scary!!
 
    <p align="center"> </p>
 
