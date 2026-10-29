@@ -22,5 +22,5 @@ Check my sp for more abt me and feel free to int anywhere!!
 </details>
 <br />------------------------------------------------------------------------------------------------------------------------------------------------------
 
-<b> <p align="center">[StrawPage](https://skyeshoods.straw.page)  / [Tumblr](https://www.tumblr.com/blog/skyesogoofy)<br />
+<b> <p align="center">[StrawPage](https://skeeye.straw.page)  / [Tumblr](https://www.tumblr.com/blog/skyesogoofy)<br />
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fskyesogoofy%2Fgithub-visitors-badge"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fskyesogoofy%2Fgithub-visitors-badge&labelColor=%23821111&countColor=%23821111" /></a>  <br />
